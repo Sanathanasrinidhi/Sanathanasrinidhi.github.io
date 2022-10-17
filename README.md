@@ -1,1 +1,0 @@
-# Sanathanasrinidhi.github.io
